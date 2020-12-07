@@ -7,5 +7,6 @@ We only report news that are true for C. They are irrelevant for everyone else!
 **Millions sign on to support Charles for 2024 Presidential election!**
 
 C, the opinion leader for Bees has won millions of support to stand for the 2024 Presidential election for the world to challenge Trump!
-There will be a rally this coming Saturday around the globe.
+There will be a rally this coming Saturday around the globe. The rally will be held in Hong Kong, Toronto, Vancouver, London and Tokyo. 
+The organiser is expecting millions to turn out.
 
