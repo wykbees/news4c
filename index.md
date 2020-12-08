@@ -4,7 +4,7 @@ We only report news that are true for C. They are irrelevant for everyone else!
 
 # News of the day
 
-## Donations pouring in support for C
+## Donations pouring in to support for C
 [8 Dec, 10:00 news4c] The campaign website for C is flooded with donations causing it to meldown. Staff reports that they were trying their best to restart the donation service.
 
 
